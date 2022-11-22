@@ -10,7 +10,7 @@ This tools is paid,  so buy this tools fast
 
 Tools price is
 
-15 days 350৳
+15 days 300৳
 30 days 600
 
 # Commands 
@@ -36,4 +36,4 @@ To buy this tools.
 Contract me. 
 WhatsApp number : +8801701707661
 
-#💥💥💥💥💥💥💥💥
+#💥💥💥💥💥💥💥💥😘
